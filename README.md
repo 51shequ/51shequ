@@ -8,7 +8,7 @@
 
 商务合作🤝  @i51_co3
 投稿/问题反馈 👉@i51_co_kf
-失联获取最新地址方法1：https://github.com/51sq.i51.co
+失联获取最新地址方法1：https://github.com/51shequ
 失联获取最新地址方法2：发任意内容到邮箱：51sq.i51.co@gmail.com
 
 ——————51社区 下载地址——————
