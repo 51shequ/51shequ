@@ -11,6 +11,7 @@
 ——————51社区 联系我们——————
 商务合作🤝 ： https://t.me/i51_co—_kf
 投稿/问题反馈 👉：https://t.me/i51_co—_kf
+51社区官方推特：https://twitter.com/i51_co
 失联获取最新地址方法1：https://github.com/51shequ
 失联获取最新地址方法2：发任意内容到邮箱：https://51sq.i51.co@gmail.com
 
